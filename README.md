@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Java Programming and Web Developement**
 
-- 💬 Ask me about **DS Algo, Java, and Anything about technology**
+- 💬 Ask me about **DS Algo, Java, and Anything about technology😁**
 
 - 📫 How to reach me **saurabhkhule143@gmail.com**
 
